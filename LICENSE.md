@@ -1,4 +1,4 @@
-
+steal a brainrot hidden Script offers the most advanced steal a brainrot Script, with teleport and auto-upgrade. Perfect for dominating any match.
 
 
 
